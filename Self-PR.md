@@ -61,7 +61,6 @@
 
 평생 자기PR 해본 적 없는 사람인 거 티내기
 
-![Untitled%204a6a42a0690940a3af1c9fb632c4251c/Screen_Shot_2020-05-09_at_13.55.42.png](Untitled%204a6a42a0690940a3af1c9fb632c4251c/Screen_Shot_2020-05-09_at_13.55.42.png)
 
 학**력**
 
